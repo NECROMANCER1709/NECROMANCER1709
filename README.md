@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NECROMANCER1709
-- 👀 I’m interested in ... Games, Softwares , Coding and Animating
+- 👀 I’m interested in ... Games, Softwares , Coding and Animation
 - 🌱 I’m currently learning ...Animation Student
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
